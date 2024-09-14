@@ -10,7 +10,7 @@
 />
 
 - 📫 How to reach me **anusha.sani55@gmail.com** - 📄 Know about my experiences
-[https://docs.google.com/document/d/1jJr3Hfqae2xlorBy1s9t3yF4SqVIOape1v6vERQA9Bc/edit](https://docs.google.com/document/d/1jJr3Hfqae2xlorBy1s9t3yF4SqVIOape1v6vERQA9Bc/edit)
+https://docs.google.com/document/d/1TbQxBiCDSTeGugZGZAVC5ssxEgFqAEIx8wRnyBK6OCg/edit?usp=sharing
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
